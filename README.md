@@ -1,1 +1,0 @@
-# OOP_HR_ANALYS-S
